@@ -1,1 +1,2 @@
-![image](https://user-images.githubusercontent.com/72840768/220911981-879f9de1-3be7-4270-89bf-d53afc9182d8.png)
+![image](![image](https://github.com/Andrey-Lucas/Netflix.Dio/assets/72840768/c7009e52-0040-4553-add8-f8347d6e5cd8)
+
